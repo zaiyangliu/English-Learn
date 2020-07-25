@@ -14,3 +14,20 @@ Thank you for your assistance in this matter. I await your reply.
 Best regards,
 
 Adam
+
+
+If renewable energy companies can get more government agencies on board to invest in the necessary infrastructure, the entire economy will benefit.
+Unfortunately, no pets are allowed on board the bus.
+
+It was clear that the damage to the school was done on purpose, not as an accidental result of children's play as the alleged vandals claim.
+
+The lawyers submitted the proposal for the takeover on behalf of their clients.
+
+Modern athletes are on track to surpass all the records of their elder peers.
+The company's plans to sreamline production is right on track.
+
+Most people who fail this test do so on account of their lack of preparation.
+On no account should children be left alone in a vehicle for any length of time.//on no account 放在句首做状语，因为是否定 所以句子要 倒装
+
+A solo traveller must always be on guard when travelling in a new palce.
+Those new to the stock market should be on guard against biased advice paid for by companies to attract investors.

@@ -31,3 +31,6 @@ On no account should children be left alone in a vehicle for any length of time.
 
 A solo traveller must always be on guard when travelling in a new palce.
 Those new to the stock market should be on guard against biased advice paid for by companies to attract investors.
+
+Most people who fail this test do so on account of their lack of preparation.
+On no account should children be left alone in a vechicle for any length of time.

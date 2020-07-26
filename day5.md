@@ -14,7 +14,7 @@ The company's headquarters are based in New York.
 The military's top brass are based at the Pentagon.
 
 # Do you agree or disagree with the following statement?
-Playing computer games is a waste of time. Children should not be allowed to play them.
+# Playing computer games is a waste of time. Children should not be allowed to play them.
 
 Losing track of time while playing computer games is a very common problem among youths. Some people thus believe that children should not be allowed to paly these
 games and instead should spend their time on other, more productive activities. I disgree with the idea that playing computer games is a waste of time because they 

@@ -37,3 +37,39 @@ bastard 王八蛋
 niggard 悭吝鬼
 sluggard 懒汉 slug 鼻涕虫
 coward 懦夫
+cash cow 摇钱树
+## itis- 炎症
+laryngitis  咽喉炎 larynx 咽喉
+hepatitis 肝炎  hep 肝
+appendicitis 阑尾炎 appendices 阑尾
+diabetes 糖尿病 diet 饮食（饮食无节制，营养过剩，引发糖尿病）
+## pend- 粘贴 附
+appendix  附录
+suspend 悬挂
+## ia  通过，桥梁/重大疾病
+media  媒体（立场在中间）
+aviation 航空（空中通过）
+aviator 民航飞行员 pilot 试飞员
+euthanasia 安乐死  mercy killing
+hypochondria 忧郁症/多疑症  chronic 慢性的
+phobia 恐惧症  phob 讨厌
+school phobia 
+dental phobia
+trypophobia  密集恐惧症  triple 三倍的
+## 顺序改变，意思不变
+1、star  astronaut 宇航员
+2、mature  成熟的   amateur 业余的
+3、center   eccentric 离心的 古怪的  eccentricity
+## 元音替换，意思不变
+1、symmetry  相称  asymmetry
+2.symmetric 对称的  asymmetric 不对称的
+sym = sem = sim = same
+1.simulate
+2.similar
+3.resemble 相似的
+path 感情
+1、empathy 同理心
+2.sympathy 同情心（be sympathetic to）
+metry = meter  测量工具
+thermometer  温度计
+thermos 善魔师

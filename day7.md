@@ -26,8 +26,8 @@ obsess沉迷（sess = sit）
 obstacle障碍物（st=stand 站  -acle物品）
 obstruct阻隔 阻塞（struct=build 建立）obstruction 障碍物
 detain拘留（de情绪向下）
-maintain  维修，维持 主张=set forth（把主要功能留下来） maintain 啊family  养家糊口
-make both ends meet 收支平衡
-income 收  expense/expenditure 支
-outcome 
-disastrous outcomes / consequences 灾难性结果
+maintain  维修，维持 主张=set forth（把主要功能留下来） maintain 啊family  养家糊口  
+make both ends meet 收支平衡  
+income 收  expense/expenditure 支  
+outcome   
+disastrous outcomes / consequences 灾难性结果  

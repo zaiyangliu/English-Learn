@@ -1,5 +1,5 @@
 ## 1
-An overwhelming number of free video websites give students easy access to knowledge.
+An overwhelming number of free video websites give students easy access to knowledge.  
 make this architecture accessible to the disabled
 
 ## 2
@@ -31,3 +31,9 @@ make both ends meet 收支平衡
 income 收  expense/expenditure 支    
 outcome     
 disastrous outcomes / consequences 灾难性结果    
+breadwinner 持家者 who wins the bread in your family?  
+Vehicle-maintenance 汽车保养  
+She is so high-maintenance 她太难伺候了   
+## 3
+have a nine-to-five job  
+

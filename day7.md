@@ -30,4 +30,4 @@ maintain  维修，维持 主张=set forth（把主要功能留下来） maintai
 make both ends meet 收支平衡
 income 收  expense/expenditure 支
 outcome 
-disa
+disastrous outcomes / consequences 灾难性结果
